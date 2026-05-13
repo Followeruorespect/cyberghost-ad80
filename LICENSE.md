@@ -1,4 +1,4 @@
-
+Enhance your CyberGhost experience with vip CyberGhost Module | custom-configurations + double-VPN, the #1 module. Includes custom-configurations and double-VPN for a safer and
 
 
 
